@@ -4,7 +4,7 @@
 </p>
 
 ### Hi there 👋 I'm [Ram Kumar Shukla](https://www.linkedin.com/in/ram-kumar-s-603149129/)
-> Student at [Shri Ramswaroop Memorial University](https://www.srmu.ac.in/)
+> Graduated from [Shri Ramswaroop Memorial University](https://www.srmu.ac.in/)
 
 
 
